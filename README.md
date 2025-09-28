@@ -1,2 +1,2 @@
 # Make my Journey
-Make ytour journey memorable 
+Make your journey memorable 
